@@ -28,5 +28,4 @@ Me apasiona el aprendizaje continuo y aplico **metodologías ágiles** y **pensa
 ---
 ## 📫 Conectemos
 - Email: cra.gabrielabianchi@gmail.com
-- LinkedIn: próximamente
-
+- LinkedIn://linkedin.com/in/gabriela-bianchi-246256388
